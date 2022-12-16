@@ -1,4 +1,4 @@
-Welp! Welome to my readme.
+Welp! Welcome to my readme.
 
 I really do not know that to put here...
 
